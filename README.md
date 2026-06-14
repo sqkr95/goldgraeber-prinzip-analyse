@@ -1,0 +1,1 @@
+# goldgraeber-prinzip-analyse
